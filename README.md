@@ -7,6 +7,12 @@ Ingeniería Informática (ITBA)
 * Interesado por el desarrollo mobile, iOT y la automatización de procesos
 * Siempre aprendiendo algo nuevo
 
+#### Contacto
+Por cualquier cosa, podés escribirme a
+matidellatorre@gmail.com
+
+
+
 
 
 
